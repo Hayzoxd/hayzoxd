@@ -1,4 +1,4 @@
-### <p align="center">☕ &nbsp;Support me</p>
+### <p align="center">☕ &nbsp;Need help with my repositories? Contact me.</p>
 <p align="center"><strong>
   Twitter: @hayzoxd<br>
   Discord: Hayzox#9616
