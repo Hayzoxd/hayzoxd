@@ -1,7 +1,7 @@
 ### <p align="center">☕ &nbsp;Support me</p>
 <br>
 <p align="center"><strong>
-  Twitter: hayzoxd<br>
+  Twitter: @hayzoxd<br>
   Discord: Hayzox#9616
   <br>
 </strong></p>
