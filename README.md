@@ -1,7 +1,7 @@
 ### <p align="center">☕ &nbsp;Support me</p>
 <br>
 <p align="center"><strong>
-  Twitter: [hayzoxd](https://twitter.com/hayzoxd)<br>
+  [Twitter](https://twitter.com/hayzoxd)<br>
 </strong></p>
 
 
