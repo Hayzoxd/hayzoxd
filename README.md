@@ -2,6 +2,7 @@
 <br>
 <p align="center"><strong>
   Twitter: https://twitter.com/hayzoxd<br>
+  Discord: Hayzox#9616
   <br>
 </strong></p>
 
