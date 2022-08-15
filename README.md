@@ -1,5 +1,4 @@
 ### <p align="center">☕ &nbsp;Support me</p>
-<br>
 <p align="center"><strong>
   Twitter: @hayzoxd<br>
   Discord: Hayzox#9616
